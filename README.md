@@ -103,7 +103,7 @@ Foundation University School of Science & Technology
 ## 📫 Get in Touch
 - Email: **yousafhashmi44@gmail.com**
 - GitHub: [github.com/yousafhashmi98](https://github.com/yousafhashmi98)
-- LinkedIn: [linkedin.com/in/yousaf-hashmi4372481b1](https://linkedin.com/in/yousaf-hashmi4372481b1/)
+- LinkedIn: [linkedin.com/in/yousaf-hashmi4372481b1/](https://www.linkedin.com/in/yousaf-hashmi-4372481b1/)
 
 ---
 
